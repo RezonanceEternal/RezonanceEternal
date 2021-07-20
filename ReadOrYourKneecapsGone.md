@@ -1,0 +1,3 @@
+- Sup, I'm RezonanceEternal
+- I take special interest old retro games such as Quake, DOOM and Wolfenstein 3D, and indie titles such as Friday Night Funkin', Castle Crashers and more.
+- If you want to reach me my Discord is: SkullBoi#7186
